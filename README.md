@@ -1,0 +1,2 @@
+# Ajalekoko
+Ajalekoko primary school
